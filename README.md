@@ -1,1 +1,1 @@
-https:www.aimhighergg.com
+www.aimhighergg.com
