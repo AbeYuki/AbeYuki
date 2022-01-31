@@ -1,1 +1,1 @@
-https://www.aimhighergg.com/portfolio/
+https://www.aimhighergg.com/
